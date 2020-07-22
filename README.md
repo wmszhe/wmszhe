@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-![](https://visitor-badge.glitch.me/badge?page_id=wmszhe)
+![](https://visitor-badge.laobi.icu/badge?page_id=wmszhe)
